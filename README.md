@@ -1,5 +1,5 @@
 - 👋 Hi, I’m rafael and bautista
-- 👀 I’m interested in football and rugby
+- 👀 us interested in football and rugby
 - 🌱 I’m currently learning footbal and rugby in a club
 - 💞️ I am looking to collaborate in caring for the environment
 - 📫 How to reach us through our Instagram which is rafae.l4642 and bauti_._ayala
